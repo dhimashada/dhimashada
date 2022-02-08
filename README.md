@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @dhimashada
+- 👀 I’m interested in death
+- 🌱 I’m currently learning to kill
+- 💞️ I’m looking to collaborate on homicide
